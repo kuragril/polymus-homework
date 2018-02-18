@@ -1,2 +1,1 @@
-# polymus-homework
-DO IT
+#kura moschet cep macarava!!!!!
